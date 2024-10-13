@@ -17,6 +17,7 @@ Kippen Lee (╯°□°）╯︵ ┻━┻
 Michael Hunter 🍕
 Jonathan Toussaint ;-)
 Bryan Caples ᕕ(⌐■*■)ᕗ ♪♬
+Julie Thurmes :P
 Monica Zhang
 Gabriel Mortensen
 Milton Huynh 😎
